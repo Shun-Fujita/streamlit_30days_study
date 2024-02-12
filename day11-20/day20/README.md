@@ -1,0 +1,1 @@
+![Francesco Ciulla](https://twitter.com/FrancescoCiull4)のX Space(旧:Twitter Space)を聞いてみようという話だがアーカイブもないためスキップ
